@@ -1,2 +1,1 @@
-Mein name ist Gagik und ich lebe in Armenien.
- Ich 14 jarhe alt, und doch lerne.
+Robert, 15 years and I've been creating the AI
